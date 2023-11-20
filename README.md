@@ -1,7 +1,7 @@
 # - 👋 Hi, I’m @LOVE-NWANKWO #
-## - 👀 I’m interested in ..DATA ANALYTICS ##
+## - 👀 I’m interested in ..DATA ANALYTICS AND ANALYSIS ##
 - 🌱 I’m currently learning .DATA ANALTICS WITH DAHEL TECHIES
-- 💞️ I’m looking to collaborate on ..START UP FOUNDERS AND BUSINESS OWNERS
+- 💞️ I’m looking to collaborate on ..START UP FOUNDERS, TECH COMPANIES AND BUSINESS OWNERS
 - 📫 How to reach me ..[LINKEDIN](https://www.linkedin.com/in/love-nwankwo-45ba3699?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
  
 <!---
